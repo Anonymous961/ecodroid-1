@@ -10,7 +10,7 @@ Ecology, Environment, Climate Change and Disaster Management.
 
 ## Problem
 
-Every year saplings are planted across Odish during different events with a lot of enthusiasm However, most of them die untimely death due to lack of care and maintenance.
+Every year saplings are planted across Odisha during different events with a lot of enthusiasm However, most of them die untimely death due to lack of care and maintenance.
 
 ## About
 
